@@ -1,4 +1,4 @@
-# INTELORA
+# INTELORA https://intelora.xyz for more results or for purchase telegram:shizobub0
 intelora ssh connection to service
 
 
